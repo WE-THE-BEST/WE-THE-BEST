@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @WE-THE-BEST
 - 👀 I’m interested in DJ Khaled
 - 🌱 I’m currently learning DJ Khaled
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on DJ KHaled
 - 📫 How to reach me ...
 
 
